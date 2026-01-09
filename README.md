@@ -66,9 +66,7 @@ Data Analyst | Power BI | Business Intelligence
 🔗 **LinkedIn:**  
 https://www.linkedin.com/in/mayur-bangera-80389a279/
 
-🔗 **GitHub:**
 
-https://www.github.com/mayurbangera
  
 ---
 
